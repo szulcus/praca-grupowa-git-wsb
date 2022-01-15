@@ -1,0 +1,1 @@
+# praca-grupowa-git-wsb
